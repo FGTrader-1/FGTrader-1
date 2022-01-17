@@ -7,4 +7,4 @@
 <!---
 FGTrader-1/FGTrader-1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+--->I Need help i have been a member of the peoples network and some how i was booted off the network that i really love there has to be a very big mis understanding they say i was spaming. i was booted and they say my files where deleted i am trying to learn i only have one miner at this time and i have spent thousands try to become in volvied in something that i have a great passion for. i would not be putting so much effort trying to get this all strighten out. I even told they that they could have acess to my computer to see that i do not understand what i couln be spaming about. My Hot Spot Name IS (Early Taffy Spider) You have all my information to get a hold of me Thank you for your time FREDRICK U GARNER
